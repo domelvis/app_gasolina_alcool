@@ -107,4 +107,13 @@ Contribuições são bem-vindas! Siga os passos:
 🔄 Abra um Pull Request
 
 🧑‍💻 Desenvolvido por [Elvis marcelo _etec centro paula souza] - 📱 App de Utilidade Pública
+💌 Contato Elvis Marcelo pereira de souza
+
+E-mail: 📧 elvishootsrockreggae@hotmail.com - djpetrelli239@gmail.com
+
+GitHub: 🔗 https://github.com/domelvis
+
+LinkedIn: 🔗 https://www.linkedin.com/in/elvis-marcelo-pereira-de-souza-1690bb259/
+
+Feito com ❤️ por Dom Elvis
 
